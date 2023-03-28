@@ -1,4 +1,4 @@
 # seeker tools
-• Recode by Levathi4n 
+• Recode by S00nD3v
 # Donate
 • 083821619051 > Gopay
